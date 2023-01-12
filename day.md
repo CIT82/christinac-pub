@@ -14,22 +14,22 @@
 - Do hw
 ## Afternoon Routine
 **12-1**
--Lunch and hanging out with my dog
+- Lunch and hanging out with my dog
 **1-2**
--Get ready/prep for work 
+- Get ready/prep for work 
 **2-6**
--working
+- working
 ## Night Routine
 **6-8**
--Get home cook/eat/clean dishes
+- Get home cook/eat/clean dishes
 **8-9**
--Finish up hw or any work
--watch tv w/ so
--play with my dog
+- Finish up hw or any work
+- watch tv w/ so
+- play with my dog
 **9-11**
--take dog for small walk
--get ready for sleep/read
--knockout
+- take dog for small walk
+- get ready for sleep/read
+- knockout
 
 
 **Enjoy a pic of this good boii**
